@@ -1,0 +1,2 @@
+# Softguaro
+HARDWARESOFT
